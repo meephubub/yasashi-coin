@@ -1,0 +1,1 @@
+# yasashi-coin
